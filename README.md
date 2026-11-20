@@ -15,6 +15,8 @@ also find my socials in takucentre.carrd.co just dont leak this to other ppl in 
 
 <img width="235" height="235" alt="avatars-HbgsonnuzAzYiAqT-aqucjw-t1080x1080" src="https://github.com/user-attachments/assets/c08ac5fb-0cdc-4b02-9536-3a6d02404cc6" /> peaqse look at my fic boyfriemn
 
+im ginna flex my intrto
+
 # Trisha Mayelle Z. Fos
 ## CN - 24
 lol okay

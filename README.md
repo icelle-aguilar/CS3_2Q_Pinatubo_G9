@@ -16,6 +16,13 @@ also find my socials in takucentre.carrd.co just dont leak this to other ppl in 
 <img width="235" height="235" alt="avatars-HbgsonnuzAzYiAqT-aqucjw-t1080x1080" src="https://github.com/user-attachments/assets/c08ac5fb-0cdc-4b02-9536-3a6d02404cc6" /> peaqse look at my fic boyfriemn
 
 im ginna flex my intrto
+୭ ˚. ᵎᵎ @ takuniihere ;        ıllı , . ﾉ aamii , takunii , do not mispell pls... ; 
+              , ♡ ; 
+    ﹐⸝⸝ ﹐ / fil.eng ok ; ˙ . ꒷
+ . , ₊˚ — :: guess/my/prns ; ; 
+⠀:¨ ·.· ¨:⠀      · . ౨౿　birthday ; 03 . 20　﹒ 　︵︵
+             ˚. ᵎᵎ ﹒ oks & notes ; anyone nice , ask to dm , pls use tone tags ..... , sometimes im uneducated in a topic , sometimes im freaky deaky ......    please refer to `takucentre.carrd.co` for moa .......
+⊹ ࣪ ˖ ﹒ ⠀not oks ; weird assumptions , frq unless i frq first , basics , freely blocking .....
 
 # Trisha Mayelle Z. Fos
 ## CN - 24

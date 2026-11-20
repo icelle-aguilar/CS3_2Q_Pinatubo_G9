@@ -1,4 +1,9 @@
-hi shove your own info
+# Icelle Samantha H. Aguilar
+## CN - 17
+<img width="900" height="900" alt="391f4ad3fba193edcb2429eeb58ca590" src="https://github.com/user-attachments/assets/df538435-db0d-42e5-8f89-678425613df4" />
+Hallo !!
+Nickname's Sam, uh, I LOVE listening to opm (*cough* I Belong to the Zoo, LUMI, Moira Dela Torre *COUGH COUGH*) and reading mangas/manhwas.
+pssst...satori.macline on all platforms
 
 # Andrea Francine D. Dominguez
 ## CN - 22

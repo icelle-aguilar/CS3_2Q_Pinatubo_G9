@@ -4,4 +4,4 @@ hi shove your own info
 ## CN - 22
 hi im chin follow me
 <img width="125" height="125" alt="698d090e4e461424944a430f_101" src="https://github.com/user-attachments/assets/0b354948-d654-46eb-afa8-b6bce1571ae6" />
-
+i really like rhythm games and i hate my fat brother grr....! (# `Д ‘)

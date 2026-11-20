@@ -13,3 +13,10 @@ hi im chin
 i really like rhythm games and i hate my fat brother grr....! (# `Д ‘)
 
 <img width="235" height="235" alt="avatars-HbgsonnuzAzYiAqT-aqucjw-t1080x1080" src="https://github.com/user-attachments/assets/c08ac5fb-0cdc-4b02-9536-3a6d02404cc6" /> peaqse look at my fic boyfriemn
+
+# Trisha Mayelle Z. Fos
+## CN - 24
+lol okay
+tiktok: mayleee_zf
+instagram: trishaa.mayleee
+medyomisskonaposiya
